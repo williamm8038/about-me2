@@ -1,8 +1,7 @@
-# **Kelley Lam**
-
+# **Kelley Lam**  
 ## _Info:_
 * 11th Grade
-* [Kelley Lam email](kelleyl9631@hstat.org) 
+  * [Kelley Lam email](kelleyl9631@hstat.org) 
 * High School of Telecommunication Arts and Technology
 
 ## _Schedule_
