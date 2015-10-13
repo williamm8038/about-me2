@@ -1,8 +1,9 @@
 # **Kelley Lam**  
 ## _Info:_
-* 11th Grade
-  * [Kelley Lam email](kelleyl9631@hstat.org) 
+
+* [Kelley Lam's email](kelleyl9631@hstat.org) 
 * High School of Telecommunication Arts and Technology
+  * 11th Grade
 
 ## _Schedule_
 1. Spanish 5
