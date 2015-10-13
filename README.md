@@ -4,6 +4,8 @@
 * [Kelley Lam's email](kelleyl9631@hstat.org) 
 * High School of Telecommunication Arts and Technology
   * 11th Grade
+  * Girls Swimming
+  
 
 ## _Schedule_
 1. Spanish 5
