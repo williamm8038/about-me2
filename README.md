@@ -15,4 +15,4 @@
 5. Algebra 2
 6. Service
 7. Lunch
-8. Software Engineering
+8. Go home already
